@@ -1,1 +1,1 @@
-# CintaBeda-jurusan
+# CintaBeda-jurusan.github.io
